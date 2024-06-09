@@ -5,3 +5,7 @@
 - JavaScript
 - CSS
 - Python
+
+## Podem entrar em contato comigo 👍
+
+ayrton.emanuel@outlook.com
