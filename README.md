@@ -9,3 +9,5 @@
 ## Podem entrar em contato comigo 👍
 
 ayrton.emanuel@outlook.com
+
+(https://tenor.com/pt-BR/view/guts-guts-berserk-berserk-i-love-you-love-gif-7581039663285775844)
